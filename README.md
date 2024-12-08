@@ -1,3 +1,3 @@
-if u would like to ask me for inspo on something of mine, [here](https://rentry.co/cinnanenessocials) r all of my socialz :)
+If u would like to ask me for inspo on something of mine, [here](https://rentry.co/boying) r all of my socials :)
 
-also dont post my skinz on pinterest or anything else 💀
+also dont post my skins on pinterest or anything else 💀
